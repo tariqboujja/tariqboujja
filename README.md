@@ -1,5 +1,5 @@
 - 👋 Hello, I’m @tariqboujja
-- Student at TLA learning how to cope with life.
+- learning how to cope with life.
 - 👀 I’m interested in ideas 
 
 
